@@ -15,4 +15,4 @@
 ![image](https://github.com/Kawewisate/MasterDuel/assets/68786705/3ea0a5b0-7f01-4f47-9cf8-e05d8ff93f83)
 
 # สอบถาม/สนใจ
-[**ลิ้งเฟส**]([https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C](https://www.facebook.com/profile.php?id=100087079202265)https://www.facebook.com/profile.php?id=100087079202265)
+![**ลิ้งเฟส**]([https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C](https://www.facebook.com/profile.php?id=100087079202265)https://www.facebook.com/profile.php?id=100087079202265)
