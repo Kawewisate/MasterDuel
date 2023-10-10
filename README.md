@@ -12,7 +12,7 @@
 
 # ตัวอย่างID
 
-[image](https://github.com/Kawewisate/MasterDuel/assets/68786705/c53d22e5-6d47-459a-8e1f-a38b269ef89a)
+![image](https://github.com/Kawewisate/MasterDuel/assets/68786705/d0840234-c9c5-480e-abcb-4ed4647fc4cd)
 
 ![image](https://github.com/Kawewisate/MasterDuel/assets/68786705/d8c20c87-e12f-4a2b-9569-9951f3bf8788)
 
