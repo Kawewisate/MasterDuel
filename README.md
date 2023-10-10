@@ -4,9 +4,9 @@
 
 200บาท=29,0000+เพชร
 
-เปลี่ยนได้ทุกอย่าง
+เปลี่ยนได้ทุกอย่างทั้ง
 
-เศษUR150+ทุกแบบ
+เศษUR150+ทุกประเภท
 
 เครดิต 300:https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C
 
