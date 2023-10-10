@@ -2,7 +2,7 @@
 
 -เปลี่ยนได้ทุกอย่าง
 
--เศษ UR 150++
+-เศษUR150+ทุกแบบ
 
 -เครดิต 300:https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C
 
