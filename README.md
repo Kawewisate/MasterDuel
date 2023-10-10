@@ -8,9 +8,7 @@
 
 เศษUR150+ทุกอัน
 
-เครดิต 300:https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C
-
-[**เครดิต300+**](https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C)
+[**เครดิต300+(กดลิ้งค์คลิกเลย)**](https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C)
 
 # ตัวอย่างID
 
