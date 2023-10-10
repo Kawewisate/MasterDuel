@@ -1,14 +1,14 @@
 # *IDเริ่มต้นMaster Duel 100/200บาท*
 
--100บาท=19,000+เพชร
+100บาท=19,000+เพชร
 
--200บาท=29,0000+เพชร
+200บาท=29,0000+เพชร
 
--เปลี่ยนได้ทุกอย่าง
+เปลี่ยนได้ทุกอย่าง
 
--เศษUR150+ทุกแบบ
+เศษUR150+ทุกแบบ
 
--เครดิต 300:https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C
+เครดิต 300:https://drive.google.com/drive/u/1/folders/1UjCNGhRhTtOLag3CA5ZdCAtfFSBbx72C
 
 # ตัวอย่างID
 
